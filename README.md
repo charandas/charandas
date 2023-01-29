@@ -19,7 +19,7 @@ Originally from India and making a life in the U.S. slowly but assuredly over th
   - Cooking: Similar to baking, I do feel invigorated by the act of cooking quite the same. I love fresh produce at all times. These days, I am very much into slightly spicy and bitter greens, nut-based cheeses and savory morning porridge.
 - 😄 Pronouns: he/his/him
 - Fun facts about my media likes and rants:
-  - My favorite TV show of all time is [Fringe]https://www.imdb.com/title/tt1119644/).
+  - My favorite TV show of all time is [Fringe](https://www.imdb.com/title/tt1119644/).
   - I am waiting for Andor Season 2.
   - I am sad Henry Cavill is not coming back in Witcher.
 
