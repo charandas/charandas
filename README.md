@@ -15,7 +15,8 @@ Originally from India and making a life in the U.S. slowly but assuredly over th
   - [How organizations are like slime molds](https://komoroske.com/slime-mold/)
 - 💬 Ask me about:
   - [Tabla](https://en.wikipedia.org/wiki/Tabla): I love this instrument and have been learning for a year now.
-  - Baking: I love me a heavy dose of engaging creatively in the kitchen. Baking, as a craft, is quite fulfilling. My favorite recipes are often just pound cakes or sweet breads, which I make with both Gluteny and GF ingrediants depending on whom I am cooking for.
+  - Baking: I love me a heavy dose of engaging creatively in the kitchen. Baking, as a craft, is quite fulfilling. My favorite recipes are often just pound cakes or sweet breads, which I make with both Gluten-y and GF ingrediants depending on whom I am cooking for.
+    - Highly recommend recipes by [Alanna Taylor-Tobin](https://bojongourmet.com/) for GF desserts.
   - Cooking: Similar to baking, I do feel invigorated by the act of cooking quite the same. I love fresh produce at all times. These days, I am very much into slightly spicy and bitter greens, nut-based cheeses and savory morning porridge.
 - 😄 Pronouns: he/his/him
 - Fun facts about my media likes and rants:
