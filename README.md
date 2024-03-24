@@ -1,3 +1,5 @@
+[![Ceasefire now](https://img.shields.io/badge/%F0%9F%87%B5%F0%9F%87%B8_Ceasefire_Now-techforpalestine.org-000000?labelColor=gray&color=D83838)](https://techforpalestine.org/learn-more)
+
 ### Hi there - I am Charandas 👋
 
 Originally from India, exploring this world in real and imaginary ways.
