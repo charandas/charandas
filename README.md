@@ -1,4 +1,5 @@
-![Up with the liberation, down with colonization](https://img.shields.io/badge/%F0%9F%87%B5%F0%9F%87%B8_Up with the liberation, down with colonization-techforpalestine.org-000?labelColor=grey&color=D83838&link=https%3A%2F%2Ftechforpalestine.org%2Flearn-more)
+![ADD ALT TEXT HERE](https://img.shields.io/badge/%F0%9F%87%B5%F0%9F%87%B8_Up_with_liberation_Down_with_colonization-techforpalestine.org-000?labelColor=grey&color=D83838&link=https%3A%2F%2Ftechforpalestine.org%2Flearn-more)
+
 
 
 ### Hi there - I am Charandas 👋
