@@ -1,4 +1,4 @@
-![All is better when we care for us](https://img.shields.io/badge/%F0%9F%87%B5%F0%9F%87%B8_Up_with_liberation_Down_with_colonization-techforpalestine.org-000?labelColor=grey&color=D83838&link=https%3A%2F%2Ftechforpalestine.org%2Flearn-more)
+![All is better when we care for us](https://img.shields.io/badge/%F0%9F%87%B5%F0%9F%87%B8_Up_with_the_liberation-techforpalestine.org-000?labelColor=grey&color=D83838&link=https%3A%2F%2Ftechforpalestine.org%2Flearn-more)
 
 
 
