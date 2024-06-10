@@ -2,7 +2,7 @@
 
 
 
-### Hi there - I am Charandas 👋
+### Hi there 👋
 
 Originally from India, exploring this world in real and imaginary ways.
 - 💬 Ask me about:
