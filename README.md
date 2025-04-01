@@ -4,7 +4,7 @@
 
 ### Hi there 👋
 
-Exploring this world in tumultuous times, where humanity's great weakness could very well be not taking care of each other and repeating old crimes against our own speices anew, not to count the other innumerous crimes we commit against nature every day.
+Exploring this world in tumultuous times, where humanity's great weakness could very well be not taking care of each other and repeating old crimes against our own speices anew, not to count the other innumerable crimes we commit against nature every day.
 - 💬 Ask me about:
   - [Tabla](https://en.wikipedia.org/wiki/Tabla): I love this instrument and have been learning for a few years now.
   - Baking: Engaging creatively in the kitchen. My favorite recipes include pound cakes or sweet breads. I work with both Gluten-y and GF ingredients.
