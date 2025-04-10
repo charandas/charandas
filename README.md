@@ -11,4 +11,4 @@
 
 - I am wanting to level up in Staff engineering.
 - I’m looking to excel in backend engineering and work on interesting problems in distributed systems space.
-- Excited about all things Kubernetes, Infrastructure as Code, developers.
+- Excited about all things Kubernetes, Infrastructure as Code, developers and engineering..
